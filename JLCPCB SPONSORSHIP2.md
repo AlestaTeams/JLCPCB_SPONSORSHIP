@@ -11,3 +11,5 @@ In the narrative of ALESTA's triumphs, JLCPCB emerges as an indispensable partne
 As ALESTA readies itself for yet another exhilarating chapter at Teknofest, the partnership with JLCPCB remains at the heart of their trajectory. Their journey is not merely about circuitry and innovation; it's about a shared commitment to excellence, a determination to break barriers, and an unyielding resolve to shape the future. This collaboration transcends the realms of sponsorship, standing as a testament to the potential unlocked when visionary minds converge.
 
 In the tapestry of innovation and achievement, ALESTA and JLCPCB's partnership is a thread that weaves together technology, ambition, and the indomitable spirit of progress. As ALESTA propels itself towards new horizons, one thing is abundantly clear - with determination as their compass and JLCPCB as their guide.
+
+                                                         JLCPCB : https://jlcpcb.com/HAR 
